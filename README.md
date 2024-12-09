@@ -11,5 +11,5 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I think blob fish are cute.
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Ask Mr. Vu anything: favorite food?
+* List your sports and extracurriculars you participate in: piano for 6+ years, health clinic volunteer, scyna program, giving hands initiative club, chanh phap 4+ years
