@@ -10,6 +10,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
+* Something interesting about me is I think blob fish are cute.
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
